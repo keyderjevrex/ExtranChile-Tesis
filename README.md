@@ -1,2 +1,0 @@
-# ExtranChile-Tesis
-ExtranChile
